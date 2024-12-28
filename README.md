@@ -1,4 +1,4 @@
-# 👋 Hi World! I'm Paritosh Joshi
+# 👋 Namaste World! I'm Paritosh Joshi
 
 ## 🚀 About Me
 
