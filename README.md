@@ -4,7 +4,7 @@
 
 - Software Engineer @ HSBC
 - 🌱 In a constant process of learning **Web Full Stack & Android Full Stack Development**.
-- 💬 Ask me about 
+- 💬 Ask me about GAMING 🎮, MOVIES 🎬 & MUSIC 🎵
 
 ## 🛠 Skills
 
