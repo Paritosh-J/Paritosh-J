@@ -15,3 +15,4 @@
 ## 📫 How to reach me
 
 - LinkedIn: [paritosh-j](https://www.linkedin.com/in/paritosh-j)
+- Instagram: [paritoshj_](https://www.instagram.com/paritoshj_/)
